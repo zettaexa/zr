@@ -8,7 +8,7 @@ have a good time anyways
 
 ***
 
-updated since: *june 7th, 2022*
+updated since: *july 4th, 2022*
 
 the neocities site is still supported, but it isnt as current as the rentrys
 
